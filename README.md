@@ -1,1 +1,1 @@
-# cyanide-s.com
+# cyanides.com
